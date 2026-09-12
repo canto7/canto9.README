@@ -1,7 +1,7 @@
 
 <p align="center">  <img src="https://file.garden/ZwQ7lqDy7VYhtCA_/oooo.png">  </p>
 <p align="center"> Lucien ¹  <b> ou </b>  Avery ²  , LCB4 Fictionkin  audhd  &&  <i> minor ! </i>
-<p align="center">  <a href="https://pronouns.cc/@pmoon"><b>prns.cc</b></a>&nbsp;&nbsp;&nbsp; . <a href="https://thumbclair.straw.page"><b>strawpage</b></a>&nbsp;&nbsp;&nbsp; </p>
+<p align="center">  <a href="https://pronouns.cc/@pmoon"><b>prns.cc</b></a>&nbsp;&nbsp;&nbsp; . <a href="https://thumbclair.straw.page"><b>strawpage</b></a>&nbsp;&nbsp;&nbsp; . profile by hccnyy on tumblr </p>
 <p align="center"> usually offtab and / or making ponies . #1 ryocliff fan ever </p>
 
 <p align="center"> <b> last listened to / listening to :</b> </p>
