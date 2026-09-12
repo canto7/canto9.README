@@ -1,8 +1,8 @@
 
-<p align="center">  <img src="https://64.media.tumblr.com/5f7e0015404347233bdca0779eeb8165/8f7ba4a7129ff50f-b3/s640x960/ee1996a81a0e2dc7e767df0405a263a1b7c4b300.gifv">  </p>
-<p align="center"> Kether ¹  <b> ou </b>  Vanilla ²  , he/it . tmasc gay + other labels : <i> minor ! </i>
-<p align="center">  <a href="https://rentry.co/donquix/"><b>rentry</b></a>&nbsp;&nbsp;&nbsp; . <a href="https://pronouns.cc/@sicklyangel/"><b>prns.cc</b></a>&nbsp;&nbsp;&nbsp; </p>
-<p align="center"> usually offtab and / or making ponies . big heathdon fan . feel free to whisper me to int ! </p>
+<p align="center">  <img src="https://file.garden/ZwQ7lqDy7VYhtCA_/oooo.png">  </p>
+<p align="center"> Lucien ¹  <b> ou </b>  Avery ²  , LCB4 Fictionkin  audhd  &&  <i> minor ! </i>
+<p align="center">  <a href="https://pronouns.cc/@pmoon"><b>prns.cc</b></a>&nbsp;&nbsp;&nbsp; . <a href="https://thumbclair.straw.page"><b>strawpage</b></a>&nbsp;&nbsp;&nbsp; </p>
+<p align="center"> usually offtab and / or making ponies . #1 ryocliff fan ever </p>
 
 <p align="center"> <b> last listened to / listening to :</b> </p>
 <p align="center">
